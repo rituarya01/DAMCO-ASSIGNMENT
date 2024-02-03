@@ -1,2 +1,0 @@
-# DAMCO-ASSIGNMENT
- Assignment
